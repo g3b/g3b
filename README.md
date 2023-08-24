@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @g3b
+- 👀 I’m interested in ... money ong 
+- 📫 How to reach me ... https://wry.rip/
