@@ -1,3 +1,3 @@
 https://wry.rip/
 
-im graham
+my accounts now
